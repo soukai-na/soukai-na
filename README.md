@@ -62,7 +62,7 @@ I'm here to keep learning, challenge myself, explore the possibilities of AI, an
 
 🌐 [Portfolio](https://www.sbendaoud.me)
 
-💼 [LinkedIn](YOUR_LINKEDIN_URL)
+💼 [LinkedIn](https://www.linkedin.com/in/soukaina-b-07b919175/)
 
 ---
 
